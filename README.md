@@ -1,4 +1,4 @@
-### Hi there, I'm ogendra Bisht
+### Hi there, I'm Yogendra Bisht
 
 ## I'm a Student and Developer!!
 
