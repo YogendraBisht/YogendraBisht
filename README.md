@@ -1,4 +1,4 @@
-### Hi there, I'm Ashutosh - Yogendra Bisht
+### Hi there, I'm ogendra Bisht
 
 ## I'm a Student and Developer!!
 
@@ -9,11 +9,11 @@
 
 ### Connect with me :
 
-Discord Link : https://discord.gg/8sJypzvg
+Discord Link : 
 
-YouTube Link : https://youtube.com/channel/UCRT0JzZv6aJlTcY5jhw73pg
+YouTube Link :
 
-LinkedIn Profile : https://www.linkedin.com/in/ashut1998/
+LinkedIn Profile : https://www.linkedin.com/in/theyogendrabisht/
 
 Email : bishtyogendra098@gmail.com
 <br />
